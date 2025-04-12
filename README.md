@@ -34,6 +34,7 @@ Through a comparative analysis of the collapse of socialism in the Soviet Union 
 - Cultural Revolution
 - Involution
 - Structural Analysis
+- Social Science
 
 **中文**
 
@@ -47,5 +48,6 @@ Through a comparative analysis of the collapse of socialism in the Soviet Union 
 - 文化大革命
 - 内卷
 - 结构性分析
+- 社会科学
 
 ---
