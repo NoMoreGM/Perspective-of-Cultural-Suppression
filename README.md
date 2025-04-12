@@ -1,5 +1,4 @@
 # 📖 Why Did the Eastern Socialist Revolution Fail?  
-## 东方社会主义革命何以自败？文化压迫视角的新解析
 
 ---
 
