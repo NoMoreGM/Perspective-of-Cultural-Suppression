@@ -1,3 +1,5 @@
+[![DOI](https://zenodo.org/badge/DOI/10.5281/zenodo.15200582.svg)](https://doi.org/10.5281/zenodo.15200582)
+
 This paper argues that capitalist exploitation alone is not the decisive factor leading to the spiritual suppression and rapid abandonment of socialist revolution in Eastern societies. Rather, the long-standing cultural suppression plays a crucial role in hindering individual spiritual emancipation and undermining the self-sustaining capacity of socialism.  
 Through a comparative analysis of the collapse of socialism in the Soviet Union and China, this study further contends that unless cultural suppression is dismantled, socialist revolutions in the East are destined to fail swiftly, as exemplified by the post-Mao era.
 
