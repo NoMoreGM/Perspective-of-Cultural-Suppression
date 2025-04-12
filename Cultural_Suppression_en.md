@@ -1,5 +1,4 @@
-# Why Did the Eastern Socialist Revolution Fail?  
-## A New Interpretation from the Perspective of Cultural Suppression
+# Why Did the Eastern Socialist Revolution Fail? A New Interpretation through the Lens of Cultural Suppression
 
 ---
 
